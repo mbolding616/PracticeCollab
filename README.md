@@ -10,3 +10,6 @@ Collaborators:
 3) Jennifer Erin Begonia Carruthers "Chironomid" Gleason
 4) River T. Dog
 
+Progress to date:
+
+Both Dr. Rebecca Rooney and JEBC"C"G were able to successfully break the readme.  Pat yourselves on the carapace! 
